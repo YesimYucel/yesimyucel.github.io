@@ -1,1 +1,0 @@
-# yesimyucel.github.io
